@@ -1,6 +1,6 @@
 # Resume
 
-https://docs.google.com/document/d/1_xMgxRUcNhWVz_kVQMEYeWNGm18RXFtVLTX2ZuxQM7Q/edit?pli=1
+https://drive.google.com/file/d/1a4PulaDSM4U31iaMjj30ydJPJUt_0gB0/view?usp=sharing
 
 # Certifications
 
