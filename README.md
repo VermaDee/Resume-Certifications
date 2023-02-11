@@ -2,6 +2,10 @@
 
 https://drive.google.com/file/d/1a4PulaDSM4U31iaMjj30ydJPJUt_0gB0/view?usp=sharing
 
+# LinkedIn
+
+https://www.linkedin.com/in/deevyarshe-verma-81987b194/
+
 # Certifications
 
 ✓ Microsoft Excel - Beginner to Advanced - 
