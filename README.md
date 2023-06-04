@@ -1,6 +1,6 @@
 # Resume
 
-https://drive.google.com/file/d/1qcAYlVjynNffQyGXQI_MQuZmr8r7L1E7/view?usp=sharing
+https://drive.google.com/file/d/10fyn_NWno3W4lPYUPaDd06Fcox3WIIlb/view?usp=sharing
 
 # LinkedIn
 
