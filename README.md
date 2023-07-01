@@ -1,7 +1,3 @@
-# Resume
-
-https://drive.google.com/file/d/16cXQaVFQu-yy640Qa5wugY6lFg80g3Nl/view?usp=sharing
-
 # LinkedIn
 
 https://www.linkedin.com/in/deevyarshe-verma-81987b194/
